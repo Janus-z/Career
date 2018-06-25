@@ -1,2 +1,2 @@
 # Career
-A new stage.
+A new stage. Period of transition.
